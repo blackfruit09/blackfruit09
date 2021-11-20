@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @blackfruit09
 - 👀 I’m interested in software coding and technology
-- 🌱 I’m currently learning ...anything
+- 🌱 I’m currently learning ...a lot of things
 - 💞️ I’m looking to collaborate on ...a couple of projet 
 - 📫 How to reach me ... blackfruit09 in the outlook.com 
 
